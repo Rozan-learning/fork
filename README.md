@@ -1,9 +1,6 @@
 # fork
 this is note
 
-second eidt
 
 
-
-
-the best way
+plz be good
